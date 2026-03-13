@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MimBikarska88
-- 👀 I’m interested in natural sciences, music, outdoor activities and reading. (Not mentioning programming) 
+- 👀 I’m interested in natural sciences, music, outdoor activities and reading.
 - 🌱 I’m currently learning Software Engineering at TU-VARNA
 - 💞️ I’m looking to collaborate on anything interesting since I aspire to learn as much as I can and put those skills in practice ASAP!
 
